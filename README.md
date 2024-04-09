@@ -1,4 +1,4 @@
-### Hello!! I'm Jong Gyu👋
+Hello!! I'm Jong Gyu👋
 
 <h2 align="center"> 👓 Languages 👓 </h2>
 
